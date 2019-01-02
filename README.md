@@ -1,6 +1,5 @@
 # MyGrowWithGoogleStory
 
-
 This year has been a whirlwind of emotions that words won’t completely do justice to. I was tested mentally and physically in ways that nearly broke me. Some people say there are always lessons to be learned from our mistakes but sometimes there isn’t, somethings just happen. Shortly after graduating from college and finishing my internship at the NYC Mayor’s Office in 2017 I found that my Political Science degree meant nothing in the job market. I was consistently unemployed and underemployed and (in a twisted irony) dealing with food insecurity while working as a waiter in the food industry. In between choosing to pay bills or eat. I would ask myself how I got here…
 
 
